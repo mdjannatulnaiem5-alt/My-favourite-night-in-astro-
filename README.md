@@ -14,6 +14,6 @@ My favourite night in astronomy
  10 
  11
  12
- 13
- 14
+ 13 September 2026
+ 14 September 2026
  15
