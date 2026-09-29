@@ -20,3 +20,8 @@ My favourite night in astronomy
  16 
  17 
  18 September 2026
+
+ photometry 
+ soler system 
+ galaxy 
+ univers 
