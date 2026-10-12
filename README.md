@@ -8,6 +8,7 @@ My favourite night in astronomy
  18 September 2026
  29 September 2026
  11 October 2026
+ 12 October 2026
 
  photometry 
  soler system 
