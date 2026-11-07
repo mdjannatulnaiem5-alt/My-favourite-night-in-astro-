@@ -17,7 +17,7 @@ My favourite night in astronomy
  3 November 2026
  5 November 2026 
  6 November 2026
-
+ 7 November 2926 
  photometry 
  soler system 
  galaxy 
